@@ -7,4 +7,4 @@
 - Fun fact about me: i make ponytown skins for my friends so if you want me to make you a skin, just ask me and ill hand you my discord ^^
 - I ALLOW FREE CUDDLES UNLESS I HAVE DNIUF OR DNIUID IN MY NAME!!
 My discord is: bug.killer_real
-my vrchat is: ~The broker~
+my vrchat is: ~ The broker ~
