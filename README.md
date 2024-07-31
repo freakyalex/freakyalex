@@ -1,4 +1,4 @@
-- hi im Alex or etihw
+- hi im Alex or fukami
 - i love alot of fandoms like okegom,murder drones, pressure (roblox), fnaf, etc (ask me!!) i dislike shipping characters :^
 - ask my age please!! ^^
 - im taken by the love of my life<3
