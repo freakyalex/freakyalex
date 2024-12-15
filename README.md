@@ -1,4 +1,4 @@
-- hi im Alex or silly
+- hi im Alex or ivlis
 - i love alot of fandoms like okegom,murder drones, pressure (roblox), fnaf, etc (ask me!!) i love characters ships :^
 - ask my age please!! ^^
 - im taken by the loves of my life<3 (punz, little<3)
