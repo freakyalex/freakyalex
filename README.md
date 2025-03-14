@@ -8,5 +8,5 @@
 - I ALLOW FREE CUDDLES UNLESS I HAVE DNIUF OR DNIUID IN MY NAME!!
 - My discord is: bug.killer_real
 - my vrchat is: ~ silly_lobco ~
-- im poly, bi, trans (3/4 slighty open!)
+- im bi, trans
 - small artist!! 
