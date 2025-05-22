@@ -1,6 +1,6 @@
-single and probably looking, ask me
+TAKEN BY MY PRETTY BOYFRIEND I LUV HIM SO MUCH <333
 
-P+B <333
+FAKE ASS PPL !! 
 
 pizzadebt + secondpizzachance loverr !!
 
