@@ -1,11 +1,11 @@
-single !!
+# ; HII ! call me MONTROSE or WINTERR :3
 
-call me inky or batzy  tankz u !! 
+# ; IM SINGLEE 
 
-pizzadebt + shopdebt LOVER <333
 
-vrc user; _b4tzyiztr4sh
-rblx; Mote_realX3
+# ; IM PLATONICALLY MARRIED TO JIN <3
 
-let me rest..
+
+IM 15!!1!1!1!!2!2....
+
 
